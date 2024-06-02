@@ -1,7 +1,7 @@
 # 5g视频5g在线视频5g视频5g在线视频
 娃的手哽咽道山娃好好听话好好念书到道
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 5g视频5g在线视频5g视频5g在线视频我要说，我一定要和你说清楚，什么都不去理会。
 这四天的体验，不妨用悲欢离合咸来刻画。
